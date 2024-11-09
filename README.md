@@ -1,0 +1,1 @@
+# quran-majeed-privacy-policy
